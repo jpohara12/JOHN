@@ -5,3 +5,4 @@
 
 ## Not the average person's thoughts 
 
+### [Johnisms]
