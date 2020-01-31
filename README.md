@@ -7,5 +7,9 @@
 
 ### [Johnisms](https://github.com/jpohara12/JOHN/blob/master/Johnism)
 
+### [Dumb John Jokes]
+
+### [MOtivation John Quotes]
+
 
 
