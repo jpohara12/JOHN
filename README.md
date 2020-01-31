@@ -1,7 +1,7 @@
 # John Thought's
 
 
-#### Written by John O'Hara
+###### Written by John O'Hara
 
 ## Not the average person's thoughts 
 
