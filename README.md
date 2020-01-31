@@ -8,7 +8,8 @@
 
 ### [Dumb John Jokes](https://jpohara12.github.io/JOHN/Dumb%20John%20Jokes)
 
-### [Motivation John Quotes](https://jpohara12.github.io/JOHN/Motivational_John_Quotes.md) 
+### [Motivation John Quotes](https://jpohara12.github.io/JOHN/Motivational_John_Quotes)
+
 
 
 
