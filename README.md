@@ -1,7 +1,7 @@
 # John Thought's
 
 
-###### Written by John O'Hara
+###### Written by John O'Hara, Updated every Friday 
 
 ## Not the average person's thoughts 
 
