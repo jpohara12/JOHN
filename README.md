@@ -5,4 +5,7 @@
 
 ## Not the average person's thoughts 
 
-### [Johnisms]
+### [Johnisms](https://github.com/jpohara12/JOHN/blob/master/Johnism)
+
+
+
