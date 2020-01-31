@@ -4,4 +4,4 @@
 
 #### Sucess is for the steel hearted, and John 
 
-#### Blood, sweat, and tears get you nowhere without the confidence and mamba mentality
+#### Blood, sweat, and tears get you nowhere without confidence and mamba mentality
