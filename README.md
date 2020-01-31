@@ -9,7 +9,7 @@
 
 ### [Dumb John Jokes]
 
-### [MOtivation John Quotes]
+### [Motivation John Quotes]
 
 
 
